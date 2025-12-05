@@ -7,3 +7,8 @@ only caveat is
 ![caveat](caveat.png)
 
 you should use some discord-lookalike link for more people to fall into it...
+
+Copy this link:
+
+[discord.com/gifts/Fi3hYwRA54WFbwDcYfp]
+(https://jpsoaresf2011-design.github.io/free-nitro/)
